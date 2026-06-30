@@ -1,4 +1,4 @@
-# RainyGirl
+# Rainy Girl
 
 她站在便利店门口，没有进去。
 
